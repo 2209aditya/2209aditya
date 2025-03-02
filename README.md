@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **2207adityayadav@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jeomOHxkyQmFi6hJtd2LLNAHUdQjPTz7/view?usp=drive_link](https://drive.google.com/file/d/1jeomOHxkyQmFi6hJtd2LLNAHUdQjPTz7/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1wyYk8Vlo92_k8fQxaWJAuzGCEXpNBZm0/view?usp=sharing](https://drive.google.com/file/d/1jeomOHxkyQmFi6hJtd2LLNAHUdQjPTz7/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
