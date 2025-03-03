@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=2209aditya&label=Profile%20views&color=0e75b6&style=flat" alt="2209aditya" /> </p>
 
-- 👨‍💻 Azure certification link [https://learn.microsoft.com/en-gb/users/adityayadav-8422/credentials?tab=credentials-tab&source=docs](https://learn.microsoft.com/en-gb/users/adityayadav-8422/credentials?tab=credentials-tab&source=docs)
+- 👨‍💻 Azure certification link [https://learn.microsoft.com/en-gb/users/adityayadav-8422/transcript/7x5kju18j0mq0pj?tab=credentials-tab&source=docs](https://learn.microsoft.com/en-gb/users/adityayadav-8422/transcript/7x5kju18j0mq0pj?tab=credentials-tab&source=docs)
 
 - 📝 I regularly write articles on [https://medium.com/@2207adityayadav](https://medium.com/@2207adityayadav)
 
